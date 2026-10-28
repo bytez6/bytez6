@@ -7,7 +7,7 @@
 <!-- ABOUT ME -->
 <img src="https://github.com/bytez6/bytez6/blob/cdf0265456f6eff6d07b8a994ec69361dc1f2d5f/RUI.png" align="left" width="200px"/>
 <p align="center"> $\color{red}{\text{ HEYO!!!}}$</p>
- I typically play pony town for making ponies, chatting or just chilling! Don't be afraid to talk to me I'm usually up for a chat even without the status on :D 
+ I'm not super active but typically play pony town for making ponies, chatting or just chilling! Don't be afraid to talk to me I'm usually up for a chat even without the status on :D 
 <br clear="left"/>
 
 
