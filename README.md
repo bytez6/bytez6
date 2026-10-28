@@ -17,8 +17,8 @@
 
 <img src="https://github.com/bytez6/bytez6/blob/cb626389ed6d5c4d9e8ce72b8ff97201c4c7a9bc/ruithinksticker.png" align="right" width="190px"/><p align="center"> Q&A </p>
 
-Q: C+H? A: SURE! || Q: Can I trauma dump? A: uhh.. do I know you? || Q: You homophoic? A: what do you think.. || Q: Illegal stuff? A: N O || Q: NSFW stuff- A: GET THE HELL AWAY FROM ME || Q: overly personal question  A: leave  || Q: Art commissions?  A: Check the link below
-<p align="center"> <a href="https://artistree.io/bytez6">COMMS</a> <a href="https://bytez6.carrd.co/">CARRD</a> </p>
+Q: Can I trauma dump? A: uhh.. do I know you? || Q: You homophobic? A: I'm literally gay.. || Q: Illegal stuff? A: N O || Q: NSFW stuff- A: GET THE HELL AWAY FROM ME || Q: Overly personal question  A: leave please || Q: Other socials?  A: Check the link below
+<p align="center"><a href="https://bytez6.carrd.co/">CARRD</a> </p>
 <br clear="right"/>
 
 
